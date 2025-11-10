@@ -1,0 +1,505 @@
+# Ausführungsbestimmungen zum Studium - Teil 2
+
+verbindlich.
+
+## Artikel 57 - Eigenständigkeitserklärung
+
+Die Grundsätze der Eigenständigkeitserklärung sind für alle Prüfungsleistungen verbindlich.
+
+Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025. Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025. Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025.
+
+Die Eigenständigkeitserklärung ist jeder schriftlichen Arbeit in vorgeschriebener Form beizulegen und gilt auch ohne Unterschrift. Bei allen anderen Prüfungsleistungen ist sie beizulegen, wenn dies im Veranstaltungs- und Prüfungsmerkblatt verlangt wird.
+
+Die Eigenständigkeitserklärung wird von der Studiensekretärin oder dem Studiensekretär erlassen und rechtswirksam publiziert.
+
+## Artikel 57a - Diskretionserklärung
+
+Sofern eine schriftliche Arbeit als vertraulich behandelt werden soll, muss diese mit einer signierten und dem vorgeschriebenen Wortlaut entsprechenden Diskretionserklärung versehen werden.
+
+Der vorgeschriebene Wortlaut der Diskretionserklärung wird von der Studiensekretärin oder vom Studiensekretär erlassen und rechtswirksam publiziert.
+
+## Artikel 58 - Veröffentlichung und Weitergabe von schriftlichen Arbeiten (Art. 47 PO BS / Art. 67 PO MS)
+
+Studierende sind zur Weitergabe oder Veröffentlichung einer schriftlichen Arbeit oder von Teilen davon berechtigt, die keinen Bezug zur Universität St.Gallen hat und nicht als vertraulich eingestuft wurde.
+
+Eine Weitergabe oder Veröffentlichung einer schriftlichen Arbeit oder Teilen davon, die einen Bezug zur Universität St.Gallen oder deren Angehörigen herstellt, ist vorgängig durch die Studiensekretärin oder den Studiensekretär zu bewilligen.
+
+## Artikel 59 - Bewertung von schriftlichen Arbeiten (Art. 39 Abs. 2 PO BS / Art. 66 PO MS)
+
+Eingereichte schriftliche Arbeiten können nicht zur Überarbeitung zurückgewiesen werden.
+
+Bei schriftlichen Arbeiten haben die Studierenden das Recht auf eine substanzielle Begründung der Bewertung ihrer Arbeit.
+
+## Artikel 60 - Aufbewahrung von schriftlichen Arbeiten (Art. 46 Abs. 2 PO BS / Art. 66 Abs. 2 PO MS)
+
+Schriftliche Arbeiten müssen mindestens zwei Jahre aufbewahrt werden. Die Aufbewahrung und allfällige anschliessende Vernichtung hat datenschutzkonform zu erfolgen.
+
+## Artikel 61 - Plagiatsüberprüfung und Ghostwriting (Art. 47 PO BS / Art. 67 PO MS)
+
+Alle an der Universität St.Gallen eingereichten schriftlichen Arbeiten können auf Plagiate und Ghostwriting überprüft werden.
+
+Das Verfassen einer Arbeit mit falschen oder lückenhaften Quellenangaben (Plagiat) und/oder unter Zuhilfenahme eines Ghostwriting-Services ist verboten. Jeder hinreichende Verdacht führt zur Auslösung eines Disziplinarverfahrens und kann zu Disziplinarmassnahmen führen sowie dazu, dass die Arbeit als nicht eingereicht gilt und mit der Note 1.00 bewertet wird.
+
+Bei Verdacht auf ein Plagiat oder Verwendung eines Ghostwriting-Services sind die Studierenden dazu verpflichtet, bei der Sachverhaltsermittlung vollumfänglich zu kooperieren.
+
+### 2. Besondere Bestimmungen zur Bachelor- und Master-Arbeit
+
+## Artikel 62 - Referierende und Korreferierende (Art. 68 ff. PO BS / Art. 43 ff. PO MS)
+
+Die Referentin oder der Referent der Bachelor- oder Master-Arbeit muss aus dem Kreis des aktiven Lehrkörpers der Universität St.Gallen stammen.
+
+Die Korreferentin oder der Korreferent der Master-Arbeit muss aus dem Kreis des aktiven Lehrkörpers der Universität St.Gallen stammen. Diese können von der Referentin oder dem Referenten vorgeschlagen werden.
+
+Personen, bei denen absehbar ist, dass sie in ein oder zwei Semestern wieder einen Lehrauftrag innehalten werden, zählen in Bezug auf Bachelor- und Master-Arbeiten zum aktiven Lehrkörper.
+
+Die oder der Studierende muss die Referentin oder den Referenten und bei der Master-Arbeit zusätzlich die Korreferentin oder den Korreferenten selbständig finden. Subsidiär erfolgt die Zuteilung durch das entsprechende Programm.
+
+Wollen Studierende die Bachelor- oder Master-Arbeit in einem Fachgebiet schreiben, welches zur Hauptsache von einer oder einem Lehrbeauftragten betreut wird, kann das zuständige Programm einen Bewilligungsprozess vorsehen.
+
+Die Referentin oder der Referent genehmigt das definitive Thema der Bachelor- bzw. Master-Arbeit.
+
+Die Referentin oder der Referent und die Korreferentin oder der Korreferent verpflichten sich, ihre Aufgabe bis zum Ende des Verfahrens wahrzunehmen.
+
+## Artikel 63 - Referierenden- und Korreferierendenwechsel (Art. 70 PO BS / Art. 44 PO MS)
+
+Ein Referierenden- oder Korreferierendenwechsel kann aus den folgenden Gründen bei der Studiensekretärin oder beim Studiensekretär beantragt werden: gesundheitliche Probleme; unüberbrückbare Zerwürfnisse; Wechsel des Themas; Ausscheiden der Referentin oder des Referenten aus dem aktiven Lehrkörper.
+
+Der Abgabetermin bleibt bei einem genehmigten Wechsel bestehen und kann nur in Ausnahmefällen verschoben werden.
+
+## Artikel 64 - Bewertung der Bachelor- und Master-Arbeit (Art. 71 PO BS / Art. 45 PO MS)
+
+Die Arbeit wird durch die Referentin oder den Referenten bewertet und die Benotung in einem ausführlichen schriftlichen Gutachten begründet. Die Korreferentin oder der Korreferent nimmt Stellung zum Gutachten der Referentin oder des Referenten. Sie setzen die Note gemeinsam fest.
+
+Bei Bewertungen unter 4.00 und über 5.50 bedarf es zudem einer besonderen Begründung, weshalb die Arbeit ungenügend respektive sehr gut bis ausgezeichnet ist. Das entsprechende Programm überprüft jede solche Begründung.
+
+Die Studierenden haben Anrecht auf Besprechung der Bachelor- bzw. Master-Arbeit. Ihnen ist Einsicht in das Gutachten und bei Master-Arbeiten zusätzlich in die Stellungnahme der Korreferentin oder des Korreferenten zu gewähren.
+
+Eine nicht rechtzeitig eingereichte Arbeit wird mit der Note 1.00 bewertet.
+
+## Artikel 65 - Umfang, Form und Sprache der Bachelor- oder Master-Arbeit (Art. 69 ff. PO BS / Art. 43 ff. PO MS)
+
+Der Umfang sollte bei einer Bachelor-Arbeit 50 Seiten (ca. 85'000 Zeichen) und bei einer Master-Arbeit 60 Seiten (ca. 102'000 Zeichen) nicht überschreiten. Einzelne Programme können bei Bedarf höhere Obergrenzen vorsehen.
+
+Die Bachelor-Arbeit ist in deutscher oder englischer Sprache zu verfassen. Die Master-Arbeit ist in einer Unterrichtssprache des Master-Programmes zu verfassen. Mit Einverständnis der Referentin oder des Referenten können Bachelor- oder Master-Arbeiten auch in einer anderen Sprache in lateinischer Schrift geschrieben werden.
+
+Muss die Arbeit verteidigt werden, hat die Verteidigung in der Sprache zu erfolgen, in der die Arbeit verfasst wurde.
+
+## Artikel 66 - Zeitpunkt und Dauer der Bearbeitung (Art. 69 ff. PO BS / Art. 43 ff. PO MS)
+
+Die Anmeldung der Bachelor- oder Master-Arbeit muss zwischen einem und 12 Monat/en vor der Abgabe erfolgen. Die Studiensekretärin oder der Studiensekretär bezeichnet die Abgabetermine. Mit Einreichung der Anmeldung kommt das Prüfungsrechtsverhältnis zustande.
+
+Die Arbeit ist zentral einzureichen und gilt ab Einreichung als abgelegte Prüfungsleistung. Eine nicht am bezeichneten Ort oder formal nicht korrekt eingereichte Arbeit gilt als nicht eingereicht.
+
+Aus besonderen Gründen kann die Studiensekretärin oder der Studiensekretär auf Antrag der Studierenden mit dem Einverständnis der Referentin oder des Referenten eine Verlängerung auf einen späteren Abgabetermin um bis zu maximal zwei Mal 3 Monate gewähren. Der Antrag muss mindestens 7 Tage vor dem ursprünglichen Abgabetermin eingereicht werden.
+
+## Artikel 67 - Aufbewahrung (Art. 46 Abs. 3 lit. b PO BS / Art. 66 Abs. 3 lit. b PO MS)
+
+Bachelor-Arbeiten und Master-Arbeiten sind 10 Jahre zentral online aufzubewahren und für Angehörige der Universität St.Gallen zugänglich zu machen. Nach Ablauf von 10 Jahren kann auf die Online-Publikation verzichtet werden, wobei die Arbeiten jedoch dem Staatsarchiv angeboten werden können.
+
+# VIII. Sprachen
+
+### 1. Allgemeine Bestimmungen
+
+## Artikel 68 - Studiensprachen und sprachliche Zulassungsvoraussetzungen
+
+An der Universität St.Gallen gelten, je nach Studiengang, Deutsch und Englisch als Studiensprachen.
+
+Die Sicherstellung von genügenden Kenntnissen in den Studiensprachen liegt in der Verantwortung der Studierenden.
+
+Mangelnde Sprachkenntnisse sind als Rekursgrund ausgeschlossen.
+
+## Artikel 69 - Begriff, Funktion und Bestimmung der Schulsprache
+
+Unter Schulsprache wird jene Sprache verstanden, in welcher die Studierenden während ihrer Schul- und gegebenenfalls Hochschulbildung mehrheitlich unterrichtet wurden.
+
+Wurde diese Schul- und gegebenenfalls Hochschulbildung zu gleichen Teilen in zwei Sprachen absolviert, so zählt die Sprache als Schulsprache, in welcher der höchste Bildungsabschluss erzielt wurde. In Zweifelsfällen entscheidet die Studiensekretärin oder der Studiensekretär abschliessend über die Festlegung der Schulsprache. Sie oder er führt eine Kasuistik.
+
+Was nicht als Schulsprache identifiziert wurde, gilt für die Studierende oder den Studierenden als Fremdsprache.
+
+Studienbewerbende haben bei der Anmeldung anzugeben: Schulsprache, Sprache des Reifezeugnisses, Kindheitssprache, Korrespondenzsprache (Deutsch oder Englisch) sowie weitere Sprachkenntnisse. Die Angaben können auf ihre Korrektheit überprüft werden. Unter Kindheitssprache wird jene Sprache verstanden, mit der eine Person aufgewachsen ist und in der sie im privaten Umfeld vorzugsweise kommuniziert hat.
+
+## Artikel 70 - Begriff und Funktionen der «fremdsprachlichen Studienleistungen»
+
+Unter einer fremdsprachlichen Studienleistung wird das Erbringen der erforderlichen Prüfungsleistungen in einer Fremdsprache («Sprachprüfung») auf definierter Stufe im Rahmen einer entsprechenden Lehrveranstaltung («Sprachkurs») verstanden.
+
+Wer an der Universität St.Gallen das Bachelorstudium absolviert, muss bis zum Abschluss Studienleistungen in zwei verschiedenen Fremdsprachen erbringen. Davon ausgenommen sind Absolvierende des Majors in Informatik, in welchem eine fremdsprachliche Studienleistung erbracht werden muss. Für diese Studienleistungen werden Credits vergeben (davon ausgenommen sind externe Zertifikate, vgl. Art. 72). Die Studienleistung ist auch bei ungenügender Note erbracht, wobei entsprechende Minus-Kreditnotenpunkte anfallen. Studierende der Majors BVWL und BIA müssen bis zum Studienabschluss eine Studienleistung in Englisch auf Stufe C2 erbringen.
+
+Wer an der Universität St.Gallen ein Master-Studium absolviert und über keinen Bachelor-Abschluss der Universität St.Gallen verfügt, muss bis zum Studienabschluss Studienleistungen in zwei verschiedenen Fremdsprachen als Zulassungsauflage erbringen. Für diese Zulassungsauflagen werden keine Credits vergeben. Die Ausführungsbestimmungen zum Zulassungsreglement regeln die Details und Abweichungen. Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021.
+
+Es werden Kurse und Prüfungen in verschiedenen Fremdsprachen auf mehreren Kompetenzstufen angeboten. Die Kompetenzstufen werden gemäss dem Gesamteuropäischen Referenzrahmen für Sprachen (GER) festgelegt.
+
+## Artikel 71 - Erbringung von fremdsprachlichen Studienleistungen
+
+Im wirtschaftswissenschaftlich-juristischen Assessmentjahr ist eine erste fremdsprachliche Studienleistung zu erbringen.
+
+Die zweite fremdsprachliche Studienleistung für die Studienschwerpunkte gemäss Art. 3 Abs. 3 PO BS, bzw. die einzige fremdsprachliche Studienleistung für den Studienschwerpunkt gemäss Art. 3 Abs. 4 PO BS muss in der Bachelor-Ausbildung erbracht werden.
+
+Zusätzlich können die im Assessmentjahr oder in der Bachelor-Ausbildung belegten Fremdsprachen auf einer höheren Stufe weitergeführt werden. Das Absolvieren von zwei ordentlichen Prüfungsterminen derselben Fremdsprache auf verschiedenen Kompetenzstufen ist im selben Semester nicht möglich. Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021.
+
+Es kann keine fremdsprachliche Studienleistung in einer tieferen Leistungsstufe absolviert werden, wenn in einem vorhergehenden Semester bereits eine höhere Leistungsstufe derselben Fremdsprache abgelegt wurde. Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021.
+
+Es können im selben Semester Studienleistungen in mehreren unterschiedlichen Fremdsprachen erbracht werden. Die oder der Studierende ist selbst dafür verantwortlich, dass bei den jeweiligen Prüfungen keine Überschneidungen eintreten. Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021.
+
+## Artikel 72 - Anrechnung externer Sprachzertifikate in der Bachelor-Ausbildung und auf Master-Stufe
+
+Mit Ausnahme der Fremdsprachprüfung im Assessmentjahr können Studienleistungen im Bereich der Fremdsprachen durch externe Zertifikate ersetzt werden.
+
+Wer sich ein externes Sprachzertifikat in einer Fremdsprache als Äquivalent zu einer Sprachprüfung der Universität St.Gallen anrechnen lassen will, muss ein Zertifikat vorweisen, das einer der im Anhang aufgeführten Referenzkategorien entspricht. Externe Sprachzertifikate müssen grundsätzlich eine genügende Leistung ausweisen. Die Studiensekretärin oder der Studiensekretär erlässt Weisungen zur Anrechnung externer Sprachzertifikate.
+
+Die Vergabe von Credits für externe Sprachzertifikate ist ausgeschlossen.
+
+### 2. Spezielle Regelungen für die Zulassungsauflagen auf der Master-Stufe
+
+## Artikel 73 - Fremdsprachliche Studienleistungen als Zulassungsauflage auf der Master-Stufe
+
+Das Erzielen einer genügenden Note bei einer intern abgelegten Sprachprüfung im Rahmen einer Zulassungsauflage auf Master-Stufe gemäss Art. 70 Abs. 3 wird nicht verlangt. Die erzielte Note wird im Zeugnis unter den Zulassungsauflagen aufgeführt.
+
+Wird das Master-Studium nicht in der jeweiligen Schulsprache absolviert, so wird eine fremdsprachliche Studienleistung als Zulassungsauflage erlassen. Bei zweisprachigen Master-Programmen oder Master-Programmen mit hybrider Sprachform werden jene Studiensprachen an die Zulassungsauflagen angerechnet, die für die Studierenden Fremdsprachen sind, und in denen mindestens 30 Credits erworben wurden.
+
+### 3. Spezielle Regelungen für Studierende ohne Deutschkenntnisse
+
+## Artikel 74 - Regelung für Studierende ohne Deutschkenntnisse auf Bachelor-Stufe
+
+Studierende, welche in das englischsprachige Assessmentjahr eintreten und bei Studienbeginn über keine Deutschkenntnisse verfügen, sind verpflichtet, am Ende des zweiten Semesters des Assessmentjahres eine Deutschprüfung auf Stufe A2 (GER) zu absolvieren. Diese Sprachprüfung gilt als eine fremdsprachliche Studienleistung. Deutschkenntnisse gelten als vorhanden, wenn bei der Anmeldung zum Studium die Sprache Deutsch als Schulsprache, Kindheitssprache oder als Sprache der Reifeprüfung angegeben wird; eine Note im Reifezeugnis im Fach Deutsch vorhanden ist oder Deutschkenntnisse auf Stufe B2 bei der Anmeldung zum Studium anderweitig angegeben werden. Die Zulassungs- und Anrechnungsstelle kann in Zweifelsfällen weitere Abklärungen treffen, wobei die oder der Studierende in der Pflicht ist, die gemachten Angaben zu plausibilisieren.
+
+Im weiteren Bachelor-Studium sind diese Studierenden verpflichtet, eine fremdsprachliche Studienleistung in Deutsch auf der Stufe B2 (GER) abzulegen oder diese Kompetenzstufe durch ein externes Sprachzertifikat nachzuweisen. Zudem muss eine weitere Studienleistung in einer anderen Fremdsprache erbracht werden.
+
+## Artikel 75 - Regelung für Studierende ohne Deutschkenntnisse auf Master-Stufe
+
+Studierende, welche bei der Aufnahme ihres Master-Studiums über keinen Abschluss der Universität St.Gallen und über keine Deutschkenntnisse verfügen, sind verpflichtet, eine fremdsprachliche Studienleistung in Deutsch auf Stufe A1 (GER) oder höher zu absolvieren oder ein entsprechendes externes Zertifikat vorzuweisen. Mit der Erbringung dieser Studienleistung ist eine Zulassungsauflage erfüllt. Zur Feststellung von Deutschkenntnissen: Vgl. Fussnote 18.
+
+# IX. Einbuchung von Studienleistungen und Vertiefungen
+
+### 1. Allgemeines
+
+## Artikel 76 - Generelle Regelung (Art. 3 PO BS / Art. 3 PO MS)
+
+Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025.
+
+Die an der Universität St.Gallen erbrachten Studienleistungen werden laufend, abhängig vom Publikationsdatum sowohl in die Gefässe des entsprechenden Studienschwerpunktes oder Master-Programmes als auch in eine Zusatzausbildung oder eine allenfalls gewählte Vertiefung eingebucht.
+
+Die Zuordnung der Studienleistungen zu den entsprechenden Gefässen geht aus der entsprechenden Studienordnung sowie von den Programmen erlassenen Bestimmungen hervor.
+
+Bei einem Studium, bei dem fakultative Leistungen erbracht wurden, erfolgt die definitive Einbuchung der Studienleistungen erst, wenn sämtliche erbrachten Leistungen publiziert sind. In diesem Fall können gegebenenfalls nicht mehr alle Studienleistungen in das zugehörige Gefäss eingebucht werden.
+
+Der Pflichtwahlbereich hat bei der Einbuchung Vorrang vor dem Wahlbereich. Im Gefäss «Skills und Sprachen» hat die erste an der Universität St.Gallen erbrachte fremdsprachliche Studienleistung den Vorrang. In allen anderen Fällen wird die besser benotete Studienleistung prioritär eingebucht. Überzählige, an der Universität St.Gallen erbrachten Studienleistungen werden unter der Rubrik "Fakultative Leistungen" ausgewiesen.
+
+Prüfungen, die in einem ausserordentlichen Prüfungstermin abgelegt worden sind, werden dem Semester zugeordnet, in welchem der ordentliche Prüfungstermin durchgeführt wurde. Die Anrechnung und Einbuchung von an anderen Universitäten erbrachten Studienleistungen erfolgt in das Semester der Leistungserbringung resp. des Austauschs.
+
+Benotete sowie als bestanden bewertete Studienleistungen werden prioritär eingebucht.
+
+Ist in einem Programm, das einen Komplementärsprachennachweis verlangt, ein Gefäss bereits gefüllt, aber der Komplementärsprachennachweis nicht erbracht, müssen die erforderlichen Credits in einem zukünftigen Semester erbracht werden. Diese Credits werden prioritär eingebucht.
+
+Studierende können über die bezeichnete elektronische Kommunikationsplattform Notenauszüge generieren. Diese informieren über den Stand der erbrachten Studienleistungen und sind nicht rekursfähig.
+
+In der Bachelor-Ausbildung werden für die zu absolvierende Fremdsprache 4 ECTS-Credits reserviert. Diese Reservierung wird aufgehoben, wenn ein externes Sprachzertifikat angerechnet wurde. Sprachen, welche curricular vorgesehen sind, werden prioritär eingebucht. Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021.
+
+## Artikel 77 - Spezialfälle (Art. 3 PO BS / Art. 3 PO MS)
+
+Veranstaltungsunabhängige Leistungen werden als letzte Leistung vor der Graduierung definitiv in die vorgesehenen Gefässe eingebucht.
+
+Studienleistungen aus Veranstaltungen, die sich über mehrere Semester erstrecken, werden jenem Semester zugeordnet, welches im entsprechenden Veranstaltungs- und Prüfungsmerkblatt festgehalten ist. Die Einbuchung erfolgt anhand der von den Programmen im Veranstaltungs- und Prüfungsmerkblatt definierten Prioritätenliste.
+
+Im Rahmen eines reformbedingten Ordnungswechsels kann die Studiensekretärin oder der Studiensekretär nachträgliche Umbuchungen und Ausbuchungen sowie eine Mehr- oder Mindergewichtung von Studienleistungen bewilligen, sofern diese nicht bereits in den vom Senatsausschuss verabschiedeten Umbuchungsbestimmungen geregelt sind. Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025.
+
+## Artikel 78 - Notenbekanntgabe (Art. 41 PO BS / Art. 61 PO MS)
+
+Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025.
+
+Die Noten werden grundsätzlich mit Publikation der Noten bekannt gegeben.
+
+Teilnoten können im Rahmen eines Feedbacks schon vor der Publikation der Noten durch den prüfungsverantwortlichen Lehrköper bekannt gegeben werden. Diese Noten sind nicht rekursfähig. Es besteht kein Anrecht auf frühzeitige Bekanntgabe, und diese kann ohne Angabe von Gründen verweigert werden.
+
+### 2. Vertiefungen, Zusatzausbildungen und -qualifikationen
+
+## Artikel 79 - Vertiefungen (Art. 3 Abs. 3 PO BS / Art. 3 Abs. 2 PO MS)
+
+Vertiefungen können innerhalb eines Schwerpunkts in der Bachelor-Ausbildung und innerhalb eines Programms auf Master-Stufe durch die jeweilige Programmleitung festgelegt und angeboten werden.
+
+Vertiefungen sind freiwillig und müssen von den Studierenden durch das Bidding gewählt werden. Es besteht kein Anspruch auf den Besuch einer bestimmten Vertiefung.
+
+Zur Erfüllung einer Vertiefung müssen die Bachelor- (oder das Capstone-Projekt im BBWL) oder die Master-Arbeit in der entsprechenden Vertiefung geschrieben werden; sowie in der Bachelor-Ausbildung mindestens 16 weitere Credits und auf der Master-Stufe mindestens 12 weitere Credits aus einem vordefinierten Angebot im Pflichtwahlbereich absolviert werden; zusätzlich müssen Studierende des Master-Programms in Informatik ihr Integratives Master Projekt (IMP) oder 12 weitere Credits im Pflichtwahlbereich in ihrer jeweiligen Vertiefung absolvieren. Eingefügt gemäss Beschluss vom 11. März 2025; in Kraft per 1. August 2025.
+
+Die zuständige Programmleitung überprüft, ob das gewählte Thema der Bachelor- oder Master-Arbeit der gewünschten Vertiefung entspricht.
+
+Die Vertiefung wird im Diploma Supplement ausgewiesen.
+
+Sind die Graduierungsbedingungen für einen Schwerpunkt oder ein Programm erfüllt, erfolgt die Graduierung, selbst wenn nicht alle Credits einer Vertiefung erworben worden sind.
+
+Vertiefungen können ohne Übergangsbestimmungen per Ende eines Frühjahrssemesters nicht mehr angeboten werden. Die Aufhebung muss mindestens 2 Semester im Voraus kommuniziert werden.
+
+Aufhebung gemäss Beschluss vom 11. März 2025; in Kraft per 1. August 2025.
+
+## Artikel 79a - Vertiefungen im Master-Programm in Informatik
+
+Änderung gemäss Beschluss vom 11. März 2025; in Kraft per 1. August 2025. Änderung gemäss Beschluss des Senatsausschusses vom 22. September 2020; in Kraft per 1. Aug. 2021.
+
+Die Studienordnung des Master-Programms in Informatik regelt das Angebot an Vertiefungen und deren Bestehensbedingungen.
+
+Die Vertiefung wird im Diploma Supplement ausgewiesen.
+
+## Artikel 80 - Einbuchung (Art. 4 PO BS / Art. 5 PO MS)
+
+Die im Rahmen von Zusatzausbildungen oder Zertifikatsprogrammen belegten Kurse sind in der Regel dem Fach- oder Kontextstudium des jeweiligen Studienschwerpunktes oder Master-Programmes zugeordnet. Sie werden an die Zusatzausbildung angerechnet. Genaueres regeln die Anhänge III, IV und V.
+
+# X. Studienzeitbeschränkung
+
+### 1. Allgemeine Bestimmungen
+
+## Artikel 81 - Besondere Gründe (Art. 6 f. PO BS / Art. 8 f. PO MS)
+
+Besondere Gründe für die Gewährung eines zusätzlichen Semesters über die maximale Studienzeit hinaus sind insbesondere Familienpflichten gemäss Art. 20 Abs. 2 AB Studium; Einschränkungen, die zu einem Nachteilsausgleich gemäss Kapitel XI. Nachteilsausgleich berechtigen.
+
+Die Gewährung eines zusätzlichen Semesters kann an Bedingungen geknüpft werden.
+
+## Artikel 82 - Zuständigkeit (Art. 7 Abs. 2 PO BS / Art. 8 Abs. 2 PO MS)
+
+Die Studiensekretärin oder der Studiensekretär entscheidet über die Gewährung eines zusätzlichen Semesters.
+
+Die Prorektorin oder der Prorektor Studium und Lehre entscheidet über die Gewährung eines zweiten zusätzlichen Semesters.
+
+Die Rektorin oder der Rektor entscheidet über die Gewährung eines dritten zusätzlichen Semesters.
+
+Die Gewährung von mehr als 3 zusätzlichen Semestern ist ausgeschlossen.
+
+### 2. Besondere Bestimmungen
+
+## Artikel 83 - Wechsel (Art. 6 PO BS / Art. 7 PO MS)
+
+Bei einem Wechsel der Studienrichtung, des Studienschwerpunktes oder des Master-Programms wird die Semesterzählung weitergeführt.
+
+Wird ein Wechsel in eine andere Studienstufe vorgenommen, bevor die ursprüngliche Studienstufe abgeschlossen wurde, dann werden die bereits absolvierten Semester an die Semesterzählung der neuen Studienstufe angerechnet.
+
+## Artikel 84 - Zusatzqualifikation, Zusatzausbildung und CEMS (Art. 6 PO BS / Art. 7 PO MS)
+
+Nach Abschluss sämtlicher Leistungen für den Studienschwerpunkt oder das Master-Programm stehen zwei zusätzliche Semester zum Abschluss der Zusatzqualifikation zur Verfügung.
+
+Element wurde in der früheren Fassung aufgehoben.
+
+Für den CEMS-Abschluss stehen, zusätzlich zu der für den Abschluss des Master-Studiums zulässigen Studienzeit, maximal 2 weitere Semester zur Verfügung.
+
+Studierende, welche die maximale Studienzeit für den Studienschwerpunkt oder das Master-Programm ausgeschöpft haben, erhalten keine zusätzlichen Semester für Zusatzqualifikationen und -ausbildungen und werden für diese gesperrt.
+
+## Artikel 85 - Immatrikulation in 2 Studienstufen
+
+Wird bei einer Immatrikulation auf 2 Studienstufen die maximale Studienzeit einer Studienstufe überschritten, erfolgt die Exmatrikulation mit Studiensperre für beide Studienstufen.
+
+## Artikel 86 - Gaststudierende
+
+Semester, welche Studierende zu einem früheren Zeitpunkt bereits als Gaststudentin oder Gaststudent an der Universität St.Gallen absolviert und während derer sie Credits erworben haben, werden an die Zählung der Studienzeit angerechnet, sofern die während des Gaststudiums absolvierten Credits an das Studium an der Universität St.Gallen angerechnet werden.
+
+# XI. Nachteilsausgleich und weitere studiumsanpassende Massnahmen
+
+### 1. Allgemeines
+
+## Artikel 87 - Begriffe (Art. 32 f. PO BS / Art. 34 f. PO MS)
+
+Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025.
+
+Als Nachteilsausgleich wird die formelle Anpassung der Bedingungen bei Prüfungsleistungen und in anderen Bereichen des Studiums für Studierende mit einer andauernden und verminderten Darstellungsfähigkeit respektive einer andauernden Beeinträchtigung bezeichnet.
+
+Als verminderte Darstellungsfähigkeit gilt eine oder mehrere Einschränkungen aufgrund einer Behinderung oder chronischen Erkrankung.
+
+Als studiumsanpassende Massnahmen werden formelle Anpassungen in Bereichen des Studiums ausserhalb des Prüfungswesens verstanden, die es Studierenden mit krankheits- oder unfallbedingten Beeinträchtigungen ermöglichen, nach Genesung ihre Leistung voll darstellen zu können.
+
+Die Fachstelle Diversity, Equality & Inclusion ist grundsätzlich für den Kontakt mit den betroffenen Studierenden verantwortlich und berät diese. Sie beurteilt die eingereichten Anträge und bereitet die komplexen Fälle zuhanden der Fachgruppe Inklusion und Studium vor.
+
+Bei der Fachgruppe Inklusion und Studium handelt es sich um eine Fachgruppe im Sinne von Art. 158. Sie berät über die vorbereiteten Fälle und Anträge.
+
+## Artikel 88 - Ziele
+
+Ein Nachteilsausgleich soll im universitären Bildungsbereich die Chancengleichheit und Inklusion von Studierenden mit andauernden Beeinträchtigungen sicherstellen.
+
+Die weiteren studiumsanpassenden Massnahmen sollen die Chancengleichheit von Studierenden mit krankheits- oder unfallbedingten Beeinträchtigungen, welche nicht zu einem Nachteilsausgleich berechtigen, sicherstellen.
+
+## Artikel 89 - Voraussetzungen (Art. 32 f. PO BS / Art. 34 f. PO MS)
+
+Ein Nachteilsausgleich oder eine studiumsanpassende Massnahme kann nur dann gewährt werden, wenn folgende Voraussetzungen kumulativ erfüllt sind: Die oder der betroffene Studierende ist generell studierfähig; Die Massnahmen gleichen substantielle und deutliche Nachteile gegenüber anderen Studierenden aus; Die Massnahmen führen zu keiner Anpassung der Lernziele oder des Lernstoffs.
+
+## Artikel 90 - Grundsätze des Nachteilsausgleichs (Art. 32 f. PO BS / Art. 34 f. PO MS)
+
+Die Bestimmung der Massnahmen zum Nachteilsausgleich richtet sich nach dem individuellen und entsprechend ausgewiesenen Bedarf der betroffenen Studierenden. Ein Nachteilsausgleich muss verhältnismässig sein und darf nicht zu einem Vorteil gegenüber anderen Studierenden führen. Es besteht kein verbindlicher Anspruch auf Gewährung eines Nachteilsausgleichs.
+
+Nachteilsausgleiche werden semesterweise gewährt. In begründeten Fällen können Massnahmen für eine längere Dauer innerhalb der regulären Studienzeit ausgesprochen werden.
+
+Macht die Antragstellerin oder der Antragsteller falsche Tatsachen geltend, kann ein Disziplinarverfahren eingeleitet werden.
+
+Bestehende Nachteilsausgleiche anderer Bildungsinstitutionen berechtigen nicht zur Erteilung des gleichen Nachteilsausgleichs an der Universität St.Gallen.
+
+## Artikel 91 - Grundsätze von studiumsanpassenden Massnahmen
+
+Studiumsanpassende Massnahmen können von Studierenden mit einer besonderen und andauernden Beeinträchtigung oder mit einer chronischen resp. nicht-akuten Erkrankung oder mit Unfallfolgen beantragt werden.
+
+Soweit diese Bestimmungen nichts anderes regeln, gelten für studiumsanpassende Massnahmen die Bestimmungen für nachteilsausgleichende Massnahmen analog.
+
+### 2. Verfahren
+
+## Artikel 92 - Antragstellung für studiumsanpassende Massnahmen
+
+Dem Antrag auf eine studiumsanpassende Massnahme muss ein aktuelles medizinisches Gutachten beigelegt werden.
+
+Der Antrag ist bei der zuständigen Fachstelle einzureichen.
+
+## Artikel 93 - Antragstellung für einen Nachteilsausgleich (Art. 32 f. PO BS / Art. 34 f. PO MS)
+
+Betroffene Studierende müssen die Fachstelle Diversity, Equality & Inclusion für ein persönliches Erstgespräch aufsuchen und ein medizinisches Gutachten vorlegen. Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025.
+
+Nach Prüfung und vorbehaltlicher Gutheissung der Voraussetzungen können die betroffenen Studierenden einen Antrag auf Nachteilsausgleich stellen.
+
+## Artikel 94 - Medizinisches Gutachten (Art. 32 f. PO BS / Art. 34 f. PO MS)
+
+Die Gewährung eines Nachteilsausgleichs setzt ein medizinisches Gutachten gemäss aktueller Ausgabe der ICD (International Statistical Classification of Diseases and Related Health Problems) zum in Frage stehenden Nachteil voraus.
+
+Das medizinische Gutachten muss insbesondere folgende Informationen enthalten: ausführliche Diagnose der verminderten Darstellungsfähigkeit nach aktueller Ausgabe der internationalen statistischen Klassifikation der Krankheiten und verwandter Gesundheitsprobleme (ICD); Auswirkungen der Beeinträchtigung auf studienrelevante Aktivitäten; Bestätigung der generellen Studierfähigkeit der betroffenen Person und der Tatsache, dass ein geeigneter Nachteilsausgleich die verminderte Darstellungsfähigkeit zu kompensieren vermag; voraussehbarer Verlauf der Beeinträchtigung (stabil, dauerhaft, progressiv, wiederkehrend, etc.).
+
+Das medizinische Gutachten darf nicht älter als zwei Jahre sein und muss von einer unabhängigen Fachärztin oder einem unabhängigen Facharzt in einer schweizerischen Amtssprache oder in englischer Sprache ausgestellt worden sein.
+
+In besonderen Fällen kann nach Absprache mit der verantwortlichen Stelle anstelle eines medizinischen Gutachtens eine alternative Dokumentation einer von den schweizerischen Krankenkassen anerkannten Berufsgruppe zum in Frage stehenden Nachteil eingereicht werden.
+
+## Artikel 95 - Zusätzliche Unterlagen und Vertrauensarzt (Art. 32 f. PO BS / Art. 34 f. PO MS)
+
+Bei Unklarheiten oder Unvollständigkeiten kann die verantwortliche Stelle zusätzliche Unterlagen und Informationen einfordern.
+
+Die verantwortliche Stelle kann eine umfassende Beurteilung des Sachverhalts durch die Vertrauensärztin oder den Vertrauensarzt oder eine andere, von der Universität St.Gallen bezeichnete Fachstelle anordnen.
+
+## Artikel 96 - Mitwirkungspflicht (Art. 32 f. PO BS / Art. 34 f. PO MS)
+
+Es besteht eine umfassende Mitwirkungspflicht der Antragsstellenden.
+
+Die Mitwirkungspflicht beinhaltet insbesondere die Bereitstellung einer geeigneten Dokumentation und die Kooperation bei einer allfälligen Konsultation der Vertrauensärztin bzw. des Vertrauensarztes. Die Mitwirkungspflicht kann auch darin bestehen, dass sich Studierende regelmässig bei der verantwortlichen Stelle melden müssen.
+
+Für eine umfassende Sachverhaltsermittlung müssen die betroffenen Studierenden der Aufhebung der ärztlichen Schweigepflicht zustimmen.
+
+Wenn die Studierenden ihrer Mitwirkungspflicht nicht nachkommen, werden der Nachteilsausgleich oder die studiumsanpassenden Massnahmen nicht gewährt. Bereits verfügte Nachteilsausgleiche oder studiumsanpassende Massnahmen können entzogen werden.
+
+## Artikel 97 - Kosten (Art. 32 f. PO BS / Art. 34 f. PO MS)
+
+Die Kosten für die medizinische Dokumentation sind grundsätzlich von den betroffenen Studierenden zu tragen.
+
+Für Nachteilsausgleiche oder studiumsanpassende Massnahmen, welche aufwendiger Vorkehrungen und Massnahmen durch die Universität bedürfen, kann die Universität eine administrative Umtriebsentschädigung von der antragsstellenden Person verlangen. Für besonders aufwendige Vorkehrungen und Massnahmen können die Vollkosten verrechnet werden.
+
+## Artikel 98 - Zuständigkeiten und Entscheid (Art. 32 f. PO BS / Art. 34 f. PO MS)
+
+Die Fachgruppe Inklusion und Studium erarbeitet die Empfehlung zur Gewährung oder Ablehnung des Nachteilsausgleichs und/oder zu studiumsanpassenden Massnahmen. Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025.
+
+Der Entscheid betreffend Gewährung oder Ablehnung eines Nachteilsausgleichs und/oder studiumsanpassende Massnahmen obliegt der Studiensekretärin oder dem Studiensekretär und wird verfügt. Die Gewährung kann durch die Studiensekretärin oder den Studiensekretär an individuell zu definierenden Bedingungen und Auflagen geknüpft werden (Verpflichtung, sich therapieren zu lassen, regelmässige Kontaktaufnahme mit der Beratungsstelle, weitergehende Mitwirkungspflichten etc.).
+
+### 3. Massnahmen
+
+## Artikel 99 - Nachteilsausgleichende Massnahmen (Art. 32 f. PO BS / Art. 34 f. PO MS)
+
+Bei Prüfungen können insbesondere folgende Formen von Nachteilsausgleichen bewilligt werden: individuelle Prüfungshilfsmittel zur Sicherstellung der Darstellungsfähigkeit; Anpassung der Prüfungsmedien und der räumlichen Gegebenheiten; zusätzliche Pausen, wobei diese einzelfallgerecht zu gewähren sind und keine Prüfungszeitverlängerung darstellen.
+
+In Ausnahmefällen kann subsidiär und/oder zusätzlich die Prüfungsform abgeändert oder eine Prüfungszeitverlängerung von bis zu 25% genehmigt werden.
+
+Eine Prüfungszeitverlängerung von mehr als 25% ist nur bei Vorliegen einer physischen Beeinträchtigung möglich und wird nur bewilligt, wenn die Fachgruppe einstimmig festhält, dass diese Massnahme im individuell konkreten Einzelfall nicht zu einer Leistungsanpassung führt. Die Fachgruppe kann dazu externe Experten hinzuziehen.
+
+Studierende mit besonderen Beeinträchtigungen können durch die Fachstelle Diversity, Equality & Inclusion auch in ihrem Studienalltag ausserhalb von Prüfungen begleitet werden. Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025.
+
+## Artikel 100 - Studiumsanpassende Massnahmen
+
+Studiumsanpassende Massnahmen sind insbesondere: Exmatrikulation, auch rückwirkend; Verschieben des Prüfungszeitpunkts; Gewährung eines Urlaubssemesters.
+
+# XII. Graduierung
+
+## Artikel 101 - Voraussetzung und Einschreibung (Art. 81 PO BS / Art. 57 PO MS)
+
+Sobald alle für die Graduierung notwendigen Leistungen erfüllt sind, kann zum nächstmöglichen Termin die Graduierung erfolgen.
+
+Sind alle für die Graduierung notwendigen Leistungen bestanden, ist keine weitere Semestereinschreibung im entsprechenden Studienschwerpunkt oder Programm möglich. Die Teilnahme am Graduation Day bedarf keiner Einschreibung.
+
+## Artikel 102 - Diplomierung (Art. 81 PO BS / Art. 57 PO MS)
+
+Die Diplomierung erfolgt an der entsprechenden Graduierungsfeier (Graduation Day) durch die Rektorin oder den Rektor.
+
+Die Teilnahme an der Graduierungsfeier und die persönliche Entgegennahme des Diploms ist obligatorisch.
+
+Der Grad wird an der Graduierungsfeier verfügt und darf erst nach erfolgter Diplomierung, bzw. nach dem postalischen Erhalt des Diploms gemäss Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021, getragen werden.
+
+## Artikel 103 - Verhinderung bei der Übergabe (Art. 81 Abs. 4 PO BS / Art. 57 Abs. 4 PO MS)
+
+Bei einer Nichtteilnahme am Graduation Day muss die ausstellende Abteilung orientiert werden. Das Diplom wird am nächstfolgenden Graduation Day der entsprechenden Stufe überreicht.
+
+Bei Verhinderung aus entschuldbaren Gründen kann alternativ bei der ausstellenden Abteilung ein Termin für eine persönliche Übergabe oder ein postalischer Versand der Diplome vereinbart werden.
+
+Das ursprüngliche Datum auf dem Diplom bleibt auch bei einem späteren Verfügungszeitpunkt bestehen und erhält nach der Übergabe seine Gültigkeit.
+
+## Artikel 104 - Überreichte Dokumente und Beurkundungsvorschriften (Art. 81 PO BS / Art. 57 PO MS)
+
+Es werden folgende Dokumente überreicht gemäss Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021: Bachelor- oder Masterdiplom (physisch und digital); Zeugnis, Diploma Supplement und allfällige Beilagen (digital); Diplome für Zusatzausbildungen (physisch und digital); Zertifikate für Zusatzqualifikationen (physisch und digital).
+
+Die Diplome werden durch die Rektorin oder den Rektor und die Sekretärin oder den Sekretär des Senats unterschrieben. Es können faksimilierte Unterschriften analog Art. 14 Abs. 2 Obligationenrecht SR 220; abgekürzt OR verwendet werden; zusätzlich oder alternativ elektronisch abgegebene Dokumente werden elektronisch zertifiziert gemäss Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021.
+
+Auf den Diplomen wird der amtliche Name abgebildet, welcher der ausstellenden Abteilung zum Zeitpunkt der Publikation der letzten Leistung bekannt war. Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025.
+
+Die Dokumente nach Abs. 1, welche in physischer Form übergeben werden, werden nur einmal im Original ausgestellt. Die Ausstellung einer Reproduktion ist gebührenpflichtig gemäss Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021.
+
+Gegen eine Gebühr kann zusätzlich verlangt werden gemäss Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021: Ein physisches Exemplar der Dokumente nach Abs. 1 lit. b; Je ein elektronisches Exemplar der Dokumente nach Abs. 1 lit. a und b, welche zusätzlich mit einer qualifizierten elektronischen Signatur versehen sind.
+
+Sofern die Voraussetzungen von Art. 83 PO BS oder Art. 60 PO MS vorliegen, kann kostenpflichtig ein neues Diplom mit neuem Namen ausgestellt werden.
+
+Das neue Diplom oder die Reproduktion wird, wenn möglich, von den gleichen Personen unterzeichnet, welche auch das ursprüngliche Diplom unterzeichnet haben. Sollte dies nicht möglich sein, unterschreiben die Personen, welche aktuell das entsprechende Amt bekleiden in Vertretung. Es wird das ursprüngliche Datum der Graduierung aufgedruckt.
+
+# XIII. Austausch und veranstaltungsunabhängige Leistungen
+
+### 109. Erbrachte Studienleistungen an anderen Universitäten (Outgoing): Bestimmungen zum Austausch
+
+## Artikel 105 - Definitionen
+
+Unter den an anderen Universitäten erbrachten Studienleistungen ist die Erlangung von Credits zu verstehen, die während einer Einschreibung an der Universität St.Gallen extern erworben wurden.
+
+Ein Austausch an einer Partneruniversität bezeichnet einen Austausch an einer Universität innerhalb des Partnernetzwerkes der Universität St.Gallen.
+
+Ein Freemover-Austausch bezeichnet einen durch die Studierenden selbst organisierten Austausch an einer Universität, mit der die Universität St.Gallen kein geltendes Partnerabkommen auf der gleichen Studienstufe abgeschlossen hat.
+
+Ein Swiss Mobility-Austausch bezeichnet den Austausch innerhalb des Schweizerischen Universitätsnetzwerkes. Davon ausgenommen ist die IHEID Genf.
+
+## Artikel 106 - Einschreibung und Studiengebühren
+
+Die Studierenden bleiben während des Austauschsemesters an der Universität St.Gallen eingeschrieben, bezahlen die entsprechenden Gebühren gemäss Gebührenordnung der Universität St.Gallen sGS 217.43 und erhalten den Status «Austauschstudentin» oder «Austauschstudent».
+
+Ein Studienbeginn an der Gastuniversität zwischen dem 1. Juli und dem 31. Dezember gilt als Austauschsemester im Herbst; ein Studienbeginn zwischen dem 1. Januar und dem 30. Juni als Austauschsemester im Frühjahr.
+
+## Artikel 107 - Allgemeine Voraussetzungen
+
+Die Bewerbungsvoraussetzungen sind: die Studierenden haben sich für das jeweilige Austauschprogramm frist- und formgerecht beworben; die Studierenden sind an der Universität St.Gallen immatrikuliert gemäss Änderung gemäss Beschluss vom 20. Mai 2025; in Kraft per 1. August 2025; für den Austausch in der Bachelor-Ausbildung liegt ein erfolgreicher Abschluss oder eine Anrechnung des Assessmentjahres vor; für den Austausch in der Master-Stufe (ab Anmeldung per HS25) liegt ein erfolgreicher Abschluss eines Bachelor-Studiums vor. Gilt erstmals für sämtliche Studierende, welche sich im HS 2026 für die Austauschsemester HS 2027 und HS 2028 bewerben. Studierende der Universität St.Gallen, welche sich im HS 2025 für die Austauschsemester HS 2026 und FS 2027 bewerben, können sich letztmalig während der Bachelor-Ausbildung bewerben. Zum Zeitpunkt der Bewerbung müssen mindestens 110 Credits in der Bachelor-Stufe sowie ein Mindestnotenschnitt von 4.50 erworben worden sein. Eingefügt gemäss Beschluss vom 20. Mai 2025; in Kraft per 1. August 2025.
+
+Die Antrittsvoraussetzungen sind: Die verbindlichen Zusagen der Universität St.Gallen und der Gastuniversität zum jeweiligen Austauschprogramm liegen vor; Zum Zeitpunkt des Antritts des Austauschsemesters stehen keine Leistungen aus der vorgelagerten Studienstufe aus; Zum Zeitpunkt des Antritts des Austauschsemesters müssen die Noten der Zulassungsauflagen vorliegen und die Fachauflagen bestanden sein. Davon ausgenommen sind allfällig zu erbringende sprachliche Zulassungsauflagen und der Buchhaltungsnachweis gemäss Änderung gemäss Beschluss vom 22. April 2025; in Kraft per 1. August 2025; Es wurden bereits Credits an der Universität St.Gallen im Studiengang gemäss Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021, in welchem das Austauschsemester absolviert wird, erworben; Für das Master-Programm in Strategy & International Management: Zum Zeitpunkt des Antritts des Austauschsemesters befindet sich die Studentin oder der Student mindestens im dritten Studiensemester dieses Master-Programms; Im entsprechenden Studiengang sind noch offene Credits für Lehrveranstaltungen vorhanden, welche durch externe Leistungen erbracht werden dürfen; Die Abklärung über die Anrechenbarkeit von Kursen wurde vorgenommen.
+
+## Artikel 108 - Besondere Bestimmungen für einen Austausch an einer Partneruniversität
+
+Besondere Voraussetzungen für den Austausch an einer Partneruniversität sind: Für die Austauschbewerbung muss ein von der verantwortlichen Fachstelle festgelegter Englischsprachnachweis nachgewiesen werden; Auf gleicher Studienstufe wurde zuvor kein Austauschsemester an einer Partneruniversität zugesagt (Ausnahmen sind der HSG Asia und HSG LATAM Term im gleichen akademischen Jahr); Für einen Austausch in der Bachelor-Ausbildung liegt ein Mindestnotenschnitt bis und mit dem der Bewerbung vorangegangenen Semester von 4.50 vor; Für einen Austausch auf Master-Stufe liegt ein Mindestnotenschnitt des zulassungsrelevanten Hochschulabschlusses von 4.50 vor. Aufhebung gemäss Beschluss vom 20. Mai 2025; in Kraft per 1. August 2025. Element wurde in der früheren Fassung aufgehoben.
+
+Einzelne Partneruniversitäten können von den Bestimmungen in Abs. 1 lit. a, c und d abweichen und zusätzliche Kriterien voraussetzen, welche bei der Zuteilung der Austauschplätze berücksichtigt werden können.
+
+## Artikel 109 - Absage zugeteilter Austauschplatz
+
+Wird ein zugeteilter Austauschplatz an einer Partneruniversität oder an einer schweizerischen Universität (Swiss Mobility-Austausch) nicht wahrgenommen, kann eine administrative Umtriebsentschädigung gemäss Art. 12 Abs. 1 lit. q) Gebührentarif über Verwaltungsgebühren erhoben werden. In begründeten Einzelfällen kann von der festgelegten Gebühr gemäss Art. 12 Abs. 1 lit. q) des Gebührentarifs über Verwaltungsgebühren abgewichen werden gemäss Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021.
+
+Eine Anmeldung für ein weiteres Austausch- oder für ein Doppelabschlussprogramm ist für die jeweilige Studienstufe nicht mehr möglich. In begründeten Einzelfällen kann auf diese Sperrung verzichtet werden.
+
+## Artikel 110 - Besondere Voraussetzungen für einen Freemover-Austausch
+
+Bei einem Freemover-Austausch muss vorgängig die Anerkennung der Austauschuniversität und des entsprechenden Studienganges bei der zuständigen Abteilung der Universität St.Gallen abgeklärt werden.
+
+## Artikel 110a - HSG Asia Term
+
+Der HSG Asia Term ist ein Austauschprogramm mit der Singapore Management University in Singapur.
+
+Der HSG Asia Term steht Studierenden aller Majors offen.
+
+Die verbindlichen Modalitäten für eine erfolgreiche Teilnahme und Anrechnung des HSG Asia Terms werden vom St.Gallen Institute of Management in Asia als zuständige Fachstelle (SGI-HSG) publiziert gemäss Änderung gemäss Beschluss des Senatsausschusses vom 25. Juni 2021; in Kraft per 1. Aug. 2021.
+
+Beim Nicht-Einhalten der publizierten Bedingungen gemäss Abs. 3 können keine Credits aus dem HSG Asia Term angerechnet werden und die Credits verfallen. Eine Anrechnung an ein normales Austauschsemester ist nicht möglich.
+
+## Artikel 110b - HSG LATAM Term
+
+Der HSG LATAM Term ist ein Austauschprogram mit der Escola de Administração de Empresas de São Paulo da Fundação Getulio Vargas in São Paulo.
+
+Der HSG LATAM Term steht Studierenden aller Majors offen.
+
+## Artikel 110c - THEMIS
+
+Das International Legal Network of Excellence ist ein Austauschprogramm für MLaw-, MLE- und MIL-Studierende.
+
+Zugelassene Studierende müssen folgende Leistungen kumulativ erfüllen: Es müssen Kurse im Umfang von mindestens 30 Credits belegt und mindestens 24 ECTS-Credits an wirtschaftsrechtlichen und/oder völkerrechtlichen Kursen müssen im Austauschsemester bestanden werden; Es muss ein Praktikum mit internationalem Schwerpunkt absolviert werden; Es muss ein THEMIS-Seminar absolviert werden.
